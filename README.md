@@ -1,1 +1,1 @@
-Im a beginner developer still in school
+I'm a beginner developer still in school
